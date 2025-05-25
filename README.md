@@ -14,7 +14,7 @@
 
 - ### **灵魂云**
 
-  - [**前往灵魂云**](http://43.100.69.187:12443/#/register?code=NianBroken)
+  - [**前往灵魂云**](https://www.linghun999.com/#/register?code=NianBroken)
 
   - IEPL 企业级内网专线
 
@@ -33,7 +33,7 @@
 
 - ### **Teacat**
 
-  - [**前往 Teacat**](https://www.teacat5.com/#/register?code=NianBroken)
+  - [**前往 Teacat**](https://www.teacat999.com/#/register?code=NianBroken)
 
   - IEPL 企业级内网专线
 
